@@ -3,7 +3,7 @@
 <br>
 
 
-<img src="https://github.com/user-attachments/assets/d98aaa49-9d35-4c7e-9407-3d198da2171c" align="left" width="350" height="350" /> 
+<img src="https://github.com/user-attachments/assets/d98aaa49-9d35-4c7e-9407-3d198da2171c" align="left" width="300" height="300" /> 
  
 ### . Amb*rose* ✧ *Vel*vet . <br>
 <img src="https://github.com/user-attachments/assets/6ee26c52-2733-43cf-8dba-d5104f2feadd" width="20" height="20" /> <br>
