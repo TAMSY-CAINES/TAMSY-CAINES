@@ -7,6 +7,7 @@
   
 ### . Amb*rose* ✧ *Vel*vet .
 <img src="https://github.com/user-attachments/assets/6ee26c52-2733-43cf-8dba-d5104f2feadd" width="20" height="20" />
+
 <img src="https://github.com/user-attachments/assets/cda40651-b32f-4e7c-aa26-bebd0c1a8dcf" width="420" />
 
 </p>
