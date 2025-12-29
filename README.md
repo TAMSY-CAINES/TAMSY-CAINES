@@ -22,12 +22,12 @@ I don't int with fandom areas they stress me out so bad <br>
 No ttgs ♡ I don't use them either <br>
 </p>
 
-<img src="https://github.com/user-attachments/assets/8525628c-b293-436c-8e2b-731e2243d016" width="390" />
+<img src="https://github.com/user-attachments/assets/8525628c-b293-436c-8e2b-731e2243d016" width="380" />
 
 Proshit & -15 dni <br>
 TamsyxRudo go play in traffic <br>
 
-<img src="https://github.com/user-attachments/assets/670893fe-bb3b-4126-86a4-c7154d8bf6cd" align="center" width="20" height="20" /> , , ![](https://komarev.com/ghpvc/?username=TAMSY-CAINES&color=e7ddcd&style=social&label=✦&abbreviated=true)
+<img src="https://github.com/user-attachments/assets/670893fe-bb3b-4126-86a4-c7154d8bf6cd" width="20" height="20" /> , , ![](https://komarev.com/ghpvc/?username=TAMSY-CAINES&color=e7ddcd&style=social&label=✦&abbreviated=true)
 
 <div align="center">
 <img width="1300" height="130" alt="image" src="https://github.com/user-attachments/assets/aa07c2f7-7501-4f78-b62d-3e7bb9d71f91" />
