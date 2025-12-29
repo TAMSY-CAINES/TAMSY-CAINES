@@ -22,7 +22,7 @@ I don't int with fandom areas they stress me out so bad <br>
 No ttgs ♡ I don't use them either <br>
 </p>
 
-<img src="https://github.com/user-attachments/assets/8525628c-b293-436c-8e2b-731e2243d016" width="370" />
+<img src="https://github.com/user-attachments/assets/8525628c-b293-436c-8e2b-731e2243d016" width="350" />
 
 Proshit & -15 dni <br>
 TamsyxRudo go play in traffic <br>
