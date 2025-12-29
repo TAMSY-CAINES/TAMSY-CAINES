@@ -16,7 +16,7 @@
 AuADHD System <br>
 I tend to be blunt , but im nice trust <br>
 Sometimes the talker ever <br>
-Pretty socially anxious , I don't make the first step in interacting like ever <br>
+Pretty socially anxious , I rarely make the first interaction <br>
 Sitting with my boyfriend usually heh <br>
 I don't int with fandom areas they stress me out so bad <br>
 No ttgs ♡ I don't use them either <br>
