@@ -10,7 +10,7 @@
 
 </p>
 
-⠀<img src="https://github.com/user-attachments/assets/cda40651-b32f-4e7c-aa26-bebd0c1a8dcf" width="430" />
+⠀<img src="https://github.com/user-attachments/assets/cda40651-b32f-4e7c-aa26-bebd0c1a8dcf" width="420" />
 <p align="center">
 AuADHD System <br>
 I tend to be blunt , but im nice trust <br>
